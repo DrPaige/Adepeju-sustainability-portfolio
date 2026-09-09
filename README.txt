@@ -1,0 +1,1 @@
+FINAL FLINT PORTFOLIO. The homepage embeds the actual work samples and certificates, so project links do not rely on temporary ChatGPT blob URLs.
