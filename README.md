@@ -111,6 +111,7 @@
 <p><strong>Adepeju Babalola</strong></p>
 
 <p>Sustainability & Environmental Management Researcher</p>
+<p>babpelumie@gmail.com | +2347037196577</p>
 
 <hr>
 
